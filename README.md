@@ -1,5 +1,5 @@
 # Toeic_preparation
-Mastering English is a must nowadays, especially in the tech field. The interesting videos, tutorials, and scientific articles are in English. I won't lie to you; I had a good level in English, but the following books helped me boost my English and, most importantly, pass my English exam: the TOEIC book, by achieving a score of 945 out of 990.
+Mastering English is a must nowadays, especially in the tech field. The interesting videos, tutorials, and scientific articles are in English. I won't lie to you; I had a good level in English, but the following books helped me boost my English and, most importantly, pass my English exam: the TOEIC, by achieving a score of 945 out of 990.
 
 I recommend you to buy them if you have the opportunity to do so. Do not get me wrong; you can also prepare for the test using videos on YouTube, but I am a big fan of books. I always need to highlight the pages to feel that I am on the right path. Yeah, I am not proud of it, but this is me, so...
 
